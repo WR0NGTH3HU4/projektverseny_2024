@@ -1,0 +1,1 @@
+# projektverseny_2024
